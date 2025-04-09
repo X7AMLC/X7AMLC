@@ -10,6 +10,6 @@ Actualmente soy desarrollador fronted, apasionado por el desarrollo e innovació
 
 📧 Email: [xicaaay@gmail.com](mailto:xicaaay@gmail.com)
 
-🌐 LinkedIn: [linkedin.com/in/amilcar-xicay](https://www.linkedin.com/in/amilcar-xicay-145719345/)
+🌐 LinkedIn: [amilcar-xicay](https://www.linkedin.com/in/amilcar-xicay-145719345/)
 
 💻 Portafolio: No tengo aun, pero estoy trabajando en el 🙈
